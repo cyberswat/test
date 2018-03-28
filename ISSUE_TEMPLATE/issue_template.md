@@ -1,0 +1,18 @@
+- [ ] event brief created and distributed
+- [ ] sessions submitted
+- [ ] presentations completed
+- [ ] sponsorship paid (firm commitment)
+- [ ] graphic assets transferred
+- [ ] determine who is going
+- [ ] accommodations secured
+- [ ] travel secured
+- [ ] supporting activities planned and booked
+- [ ] content
+- [ ] order business cards
+- [ ] order stickers
+- [ ] order t-shirts
+- [ ] order buttons
+- [ ] order booth materials
+- [ ] order printing
+- [ ] ship supporting materials to event
+- [ ] ship supporting materials from event
